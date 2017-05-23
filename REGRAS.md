@@ -58,7 +58,7 @@ Mesmo após ler as regras, leia os outros conteúdos obrigatórios da postagem f
 
 ### RELATÓRIO DA MODERAÇÃO
 
-5.1 - Todas as advertências, expulsões e banimentos são registrados neste documento: *CRIAR UM DOCUMENTO*
+5.1 - Todas as advertências, expulsões e banimentos são registrados neste documento: https://www.facebook.com/notes/gde-lacking-faces/registro-de-advertencias/999873986775449
 
 5.2 - Retirar pessoas daqui não é nossa intenção. Pretendemos agregar ao máximo todos aqueles que gostam de ajudar, ensinar e, principalmente aprender sobre os tópicos/assuntos da LF. Por isso, zele pelo grupo! Pessoas poderão retornar ao grupo se entrarem em contato com algum dos moderadores e apresentar uma justificativa que será avaliada por eles.
 
@@ -70,10 +70,7 @@ Tenham isso em mente. Uma coisa, é tirar dúvidas, ajudar e ensinar, outra é f
 
 Espero que tenham compreendido, pois trabalhamos pelo bem e conhecimento de todos.
 
-Registro de advertencias: https://www.facebook.com/notes/gde-lacking-faces/registro-de-advertencias/999873986775449
-
 Att.
-
 Equipe LACKING FACES
 
 ## Canais de Comunicação 
