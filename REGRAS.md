@@ -78,7 +78,7 @@ Equipe LACKING FACES
 
 ## Canais de Comunicação 
 
-Site: http://www.lackingfaces.org/
-Facebook: https://www.facebook.com/LackingFaces/
-YouTube: https://www.youtube.com/user/LackingFaces/videos
-Discord: https://discord.gg/pM3M2d9
+- Site: http://www.lackingfaces.org/
+- Facebook: https://www.facebook.com/LackingFaces/
+- YouTube: https://www.youtube.com/user/LackingFaces/videos
+- Discord: https://discord.gg/pM3M2d9
