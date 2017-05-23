@@ -71,6 +71,7 @@ Tenham isso em mente. Uma coisa, é tirar dúvidas, ajudar e ensinar, outra é f
 Espero que tenham compreendido, pois trabalhamos pelo bem e conhecimento de todos.
 
 Att.
+
 Equipe LACKING FACES
 
 ## Canais de Comunicação 
